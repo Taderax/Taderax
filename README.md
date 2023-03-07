@@ -1,9 +1,8 @@
 # 💫 About Me:
 **Owner / Developer** at "taderax.lol" - soon to come.
-16.
-skid.
-coder.
-.py./<br>
+#### skid
+#### coder
+#### feds.lol/exe<br>
 
 
 # 🌐 Socials:
