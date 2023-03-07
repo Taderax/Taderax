@@ -1,5 +1,9 @@
 # 💫 About Me:
-**Owner / Developer** at .../<br>
+**Owner / Developer** at "taderax.lol" - soon to come.
+16.
+skid.
+coder.
+.py./<br>
 
 
 # 🌐 Socials:
